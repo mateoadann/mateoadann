@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently studing on Digital House [Certified Tech Developer](https://www.digitalhouse.com/ar/productos/programacion/certified-tech-developer)
 
-- 📄 [Mateo Adan - CV](https://drive.google.com/file/d/1Mrq-g8riFW_tESmb8HSFn8rdEJoaoP6l/view?usp=sharing)
+- 📄 [Mateo Adan - CV](https://drive.google.com/file/d/1RS35A04MwmBAM-c5_Elzvp56kUP9ivUy/view?usp=sharing)
 
 - 🤝i'm looking for my first experience in the programming world.... [Mateo Adan - 💻](https://www.linkedin.com/in/mateo-adan/)
 
